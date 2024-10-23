@@ -1,0 +1,1 @@
+eu so fabrissio tenho 17 moro em taruma e sou aluno da escolha manuel bonifacio
